@@ -1,0 +1,2 @@
+# generate
+Earn money
